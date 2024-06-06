@@ -1,0 +1,1 @@
+# Plataforma-optomecatr-nica
